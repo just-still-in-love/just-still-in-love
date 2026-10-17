@@ -15,4 +15,4 @@ $\color{#ffb0d2}\textsf{99.99 percent gonna be seen in the TWST area, otherwise 
 $\color{#ffb0d2}\textsf{Better not to interact or iwec if: you proship (and especially like ruggie x leona, tweelcest and shroudcest), support nijisanji, support the vtuber kenji}$ $\color{#ffb0d2}\textsf{kenji, use the r slur, and also basic dni |}$ $\color{#ffb0d2}\textsf{You also might not want to INT if you're a nonsharing yume of Malleus or Leona as I also yume them}$
 
 $\color{#ffb0d2}\textsf{Often playing: Genshin, HSR or Dandy's World! Other interests include: ZZZ, WuWa, TWST, Umamusume, PJSK, Enstars, Strange Eden, Fragmem, Paradox Live, and more!!}$ $\color{#ffb0d2}\textsf{Paradox Live, Sparklink Stars, }$
-$\color{#ffb0d2}\textsf{18Trip (please dont talk to me about this unless youre 18+ :( its not exactly 18+ but kuguri is kuguri) and more!}$
+$\color{#ffb0d2}\textsf{18Trip (please dont talk to me about this unless youre 18+) and more!}$
