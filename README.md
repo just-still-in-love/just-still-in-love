@@ -9,7 +9,7 @@ $\color{#D83A43}\textsf{SHE/THEY}$
 $\color{#D83A43}\textsf{BODILY 20}$
 
 $\color{#D83A43}\textsf{I'm not a yandere. I'm instead protective over friends.}$
-$\color{#D83A43}\textsf{Because all of my friends are amazing and deserve the best.}$
+  $\color{#D83A43}\textsf{Because all of my friends are amazing and deserve the best.}$
 
 $\color{#D83A43}\textsf{C+H is fine, just don't expect me specifically to make friends.}$
 
